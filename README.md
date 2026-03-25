@@ -29,4 +29,4 @@ If you have tips or suggestions, feel free to share. I'm always open to learning
 
 ---
 
-⭐ Thanks for visiting my profile!
+⭐ Thanks for visiting my profile 
